@@ -1,1 +1,1 @@
-picture of the outputs are attached
+picture of the outputs are attached for review
