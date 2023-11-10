@@ -1,1 +1,1 @@
-# FETJ-VithikaBhatt
+picture of the outputs are attached
